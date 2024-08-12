@@ -6,7 +6,7 @@
 
 💞️ Let’s collab on cutting-edge full-stack stuff.
 
-📫 Reach me: [Your Email or LinkedIn]
+📫 Reach me right here
 
 😄 Pronouns: He/Him
 
